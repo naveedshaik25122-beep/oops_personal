@@ -1,2 +1,2 @@
 # oops_personal
-completing inshallah n few days 
+completing inshallah in few days 
